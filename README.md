@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ashley
+- 👋 Hi, I’m Ash
 - 👀 I’m interested in current and upcoming tech, animals, cars, all outdoor activities and bad humor.
 - 🌱 I’m currently learning soo much!
 - 💞️ I’m looking to collaborate on ...
